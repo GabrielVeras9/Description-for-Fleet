@@ -1,0 +1,6 @@
+![ModeloTela-1](https://github.com/GabrielVeras9/Description-for-Fleet/assets/111778668/a924d9fd-b87f-4fc2-80f6-e96c940b9e4c)
+![ModeloTela-6](https://github.com/GabrielVeras9/Description-for-Fleet/assets/111778668/a37ee61c-f72e-4be5-acbc-4cf8b8b00b00)
+![ModeloTela-5](https://github.com/GabrielVeras9/Description-for-Fleet/assets/111778668/975ee76c-0255-4b1a-9617-9f21bb8c7803)
+![ModeloTela-4](https://github.com/GabrielVeras9/Description-for-Fleet/assets/111778668/27138259-b31b-4224-b5eb-a781808768b0)
+![ModeloTela-3](https://github.com/GabrielVeras9/Description-for-Fleet/assets/111778668/61bb706e-8394-45e7-aa8f-8fb0007a68e6)
+![ModeloTela-2](https://github.com/GabrielVeras9/Description-for-Fleet/assets/111778668/9e109a15-35f6-429e-89be-6d4a6109a130)
